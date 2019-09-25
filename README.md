@@ -3,7 +3,7 @@
 3-Hana hardworking
 4-Hiba hilarious
 5-mohammed A magistic
-6-Atheer adventurous
+6-Atheer adorable
 7-Sarah sofisticated
 8-Mutafa meaningful
 9-nawal nice
